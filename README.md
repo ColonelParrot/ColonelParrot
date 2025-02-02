@@ -1,5 +1,3 @@
-President @ Puffin S.F.
-
 G.O. applying '29
 
 <!--
